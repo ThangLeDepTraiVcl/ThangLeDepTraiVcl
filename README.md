@@ -2,7 +2,7 @@
 - 👀 I’m interested in nothing
 - 🌱 I’m currently learning fckin code
 - 💞️ I’m not looking to collaborate on sth
-- 📫 How to reach me? Don't pls
+- 📫 How to reach me? Pls dont
 - 😄 Pronouns: Optimus Prime
 - ⚡ Fun fact: its not fun
 
